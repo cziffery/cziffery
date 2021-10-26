@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @cziffery
-- 👀 I’m interested in programing
-- 🌱 I’m currently learning C#
-- 💞️ I’m looking to collaborate on my game
-- 📫 How to reach me Email
+- 👀 I’m interested in get spanked by Lukas
+- 🌱 I’m currently learning suck d
+- 💞️ I’m looking to collaborate on my Sub game
+- 📫 How to reach me ur mom
 
 
 <!---
